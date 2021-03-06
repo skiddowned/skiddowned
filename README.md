@@ -4,7 +4,7 @@
   <p align="center">
   <img src="https://cdn.discordapp.com/attachments/738243069115105291/772872207733882880/38.gif" alt="Avatar" style="border-radius: 75%;">
    <br />
-   𝐉𝐚𝐧𝐤𝐲
+ damage
     <br />
     <br />
    𝙖 𝙮𝙤𝙪𝙩𝙪𝙗𝙚𝙧 𝙬𝙝𝙤 𝙠𝙣𝙤𝙬𝙨 𝙖 𝙖𝙫𝙚𝙧𝙖𝙜𝙚 𝙖𝙢𝙢𝙤𝙪𝙣𝙩 𝙤𝙛 𝙥𝙮𝙩𝙝𝙤𝙣 
